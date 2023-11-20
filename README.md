@@ -4,21 +4,26 @@ Welcome to BookPosse, your go-to place for discovering and exploring a vast libr
 
 
 ![image](https://github.com/SebastianK2000/Library/assets/127401994/aa80ff08-fb87-45bc-93bc-4735931317ba)
-
+<br/>
 
 ![image](https://github.com/SebastianK2000/Library/assets/127401994/258aeec3-042a-4fef-b138-a07f7d433750)
+<br/>
 
 
 ![image](https://github.com/SebastianK2000/Library/assets/127401994/3fd6ba1f-17fd-4089-965a-9b83c339aa1d)
+<br/>
 
 
 ![image](https://github.com/SebastianK2000/Library/assets/127401994/95ce8fdd-2527-4acf-9723-f5dbdbdabc7d)
+<br/>
 
 
 ![image](https://github.com/SebastianK2000/Library/assets/127401994/749a410f-e20c-4b59-9d66-0b1d6a967316)
+<br/>
 
 
 https://github.com/SebastianK2000/Library/assets/127401994/4b390953-d0ff-48f8-8278-853f220e4199
+<br/>
 
 
 
